@@ -6,3 +6,4 @@
 所属学院：计算机学院
 
 # Hikari yo!
+![这是爱丽丝](.\aris1.png "aris")
