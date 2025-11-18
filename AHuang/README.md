@@ -12,3 +12,5 @@ Basic Profile
 - Eager to take on new challenges 🚀
 - Always hungry, KFC crazy Thursday v me 50 🍟
 🍟😋🍖
+
+![[Pasted image 20251118171652.png]]
